@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @clem-corp
+- 👀 I’m interested in IT
+- 🌱 I’m currently learning IT
+- 💞️ I’m looking to collaborate on IT
+- 📫 How to reach me clement2.lacaille@gmail.com
